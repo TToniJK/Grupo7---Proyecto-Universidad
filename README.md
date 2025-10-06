@@ -1,0 +1,2 @@
+Buenos dias, tardes o noches profesor. Le comento que para esta primera entrega tuve que hacer este trabajo solo debido a que mi compañero de grupo nunca respondio a mi correo. Esto se lo escribo no con el afan de perjudicar, sino para tomar en cuenta
+este tipo de acciones, porque esta primera entrega era relativamente facil, pero me preocupa que en otras no sea asi. Si por favor, pordia colaborarme respecto a la ayuda de mi compañero, seria espectacular. Nuevamente, buen dia, tarde o noche.
